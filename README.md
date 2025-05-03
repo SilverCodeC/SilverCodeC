@@ -1,6 +1,6 @@
 # Hi there, I'm the Owner of **SilverSniperIndustries**
 
-![Banner](https://sebys-page-10-assets-page.netlify.app/media/pngfind.com-head-png-304893.png))
+![Banner](https://sebys-page-10-assets-page.netlify.app/media/pngfind.com-head-png-304893.png)
 
 ## About Me
 
