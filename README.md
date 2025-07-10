@@ -9,7 +9,7 @@ Beside that I'm just like everyone else <3
 
 - 💻 **Web Dev:** HTML, CSS, JavaScript, Python  
 - 🖥️ **Virtualization:** Proxmox, ESXi, XCP-ng  
-- 🎵 **Music Lover:** Always jamming to some tunes while coding  
+- 🎵 **Music Lover:** Always jamming to some tunes while coding, now also a bedroom DJ  
 - 🤝 **Collaborations:** Always looking to connect with like-minded tech enthusiasts
 
 ## Projects & Skills
