@@ -1,6 +1,6 @@
 # Hi there, I'm the Owner of **SilverSniperIndustries**
 
-![Banner](https://cdn.discordapp.com/attachments/867032994786574406/1392619640995188816/MasterUntitled.jpg?ex=6870da5c&is=686f88dc&hm=ce9190038e46a39248458643e2efbb52a24e2f7c66c6679b4639fc794b14b406&)
+![Banner](https://cdn.discordapp.com/attachments/867032994786574406/1392889871277887518/MasterUntitled.jpg?ex=68712d47&is=686fdbc7&hm=f34a4eadf89620709b41652319fdfd04adb8c50addca94e28c665041be852344&)
 
 ## About Me
 
